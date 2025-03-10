@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **HTML, CSS, JS**
 
-- 📫 How to reach me **[Telegram](https://t.me/VoTs_VoTs)[Discord](<https://discord.com/users/837661039200960542>)**
+- 📫 How to reach me **[Telegram](https://t.me/VoTs_VoTs), [Discord](<https://discord.com/users/837661039200960542>)**
 
 - ⚡ Fun fact **I like my work**
 
